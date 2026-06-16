@@ -1,2 +1,2 @@
 # Home Page
-A personal home page.
+Please contact me directly to see my portfolio of works. You can contact me on LinkedIn.
